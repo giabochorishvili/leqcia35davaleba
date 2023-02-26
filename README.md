@@ -1,2 +1,0 @@
-# leqcia35davaleba
-davaleba
